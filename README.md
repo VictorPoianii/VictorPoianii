@@ -8,4 +8,4 @@ Estudante, nerd e entusiasta dos estudos.
   ### Contato 📫
   victorhugopoiani12@gmail.com
   
-![](https://tenor.com/pt-BR/view/jonathan-joestar-babygirl-blingee-picmix-jjba-gif-14480494684565776)
+![](<div class="tenor-gif-embed" data-postid="14480494684565776302" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/jonathan-joestar-babygirl-blingee-picmix-jjba-gif-14480494684565776302">Jonathan Joestar Babygirl GIF</a>from <a href="https://tenor.com/search/jonathan+joestar-gifs">Jonathan Joestar GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>)
