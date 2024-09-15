@@ -8,4 +8,4 @@ Estudante, nerd e entusiasta dos estudos.
   ### Contato 📫
   victorhugopoiani12@gmail.com
   
-  ![](https://tenor.com/pt-BR/view/hamster-meme-staring-hd-watching-gif-23055924)
+![](https://media1.tenor.com/m/ImedFa7lNZ0AAAAC/barnyard-party.gif)
