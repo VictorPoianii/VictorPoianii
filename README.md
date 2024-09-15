@@ -8,4 +8,4 @@ Estudante, nerd e entusiasta dos estudos.
   ### Contato 📫
   victorhugopoiani12@gmail.com
   
-![](https://tenor.com/pt-BR/view/jojos-bizarre-adventures-jjba-jojo-shades-off-noriaki-kakyoin-gif-10534826017077268720)
+![](https://tenor.com/rpQYXt38zyk.gif)
